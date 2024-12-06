@@ -1,4 +1,4 @@
-![2](https://github.com/user-attachments/assets/e1ef1db7-0bb2-4d23-9f84-9a65bb8934b4)
+![Yotube-Thumbnail](https://github.com/user-attachments/assets/49874b72-6f25-45ac-827e-8779ae8cc196)
 
 # 👋 Welcome to Summito Agency!
 
